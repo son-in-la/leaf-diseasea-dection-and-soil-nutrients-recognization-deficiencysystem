@@ -1,0 +1,1 @@
+# leaf-diseasea-dection-and-soil-nutrients-recognization-deficiencysystem
